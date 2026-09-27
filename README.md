@@ -1,0 +1,2 @@
+# premium-dovetail-cut-001-dovetail-cutter-slide-way-cr
+Tired of losing track of your dovetail measurements and cut sequences halfway through a project? Stop juggling scattered notes and sticky tape — your entire joinery workflow deserves a streamlined, digital slide way.  The Dovetail Cutter &amp; Slide Way Craft Hub transforms Notion into a precision workshop for your woodworking projects. It eliminates t
